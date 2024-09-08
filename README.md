@@ -1,7 +1,8 @@
 
 ![OIP](https://github.com/user-attachments/assets/730c8a58-5933-428c-a5f9-4f281e70781d)
 
-# Apăsați pe textul albastru pentru a vedea mai multe informații. Un share pe Instagram ne-ar ajuta enorm <3
+# Apăsați pe textul albastru pentru a vedea mai multe informații. 
+# Un share pe Instagram ne-ar ajuta enorm <3
 
 ## Cine suntem și de ce facem asta?
 
