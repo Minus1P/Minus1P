@@ -1,5 +1,5 @@
 
-![OIP](https://github.com/user-attachments/assets/dcfa64ae-10a7-4085-b49b-c226e11d5665)
+![OIP](https://github.com/user-attachments/assets/730c8a58-5933-428c-a5f9-4f281e70781d)
 
 # Apăsați pe textul albastru pentru a vedea mai multe informații.
 
